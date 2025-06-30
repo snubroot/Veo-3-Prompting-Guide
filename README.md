@@ -7,21 +7,21 @@
 
 ## 📋 Table of Contents
 
-1. [🎯 Introduction & Quick Start](#introduction)
-2. [🎬 What is Veo3?](#what-is-veo3)
-3. [🟢 Beginner Level](#beginner-level)
-4. [🟡 Intermediate Level](#intermediate-level)
-5. [🔴 Advanced Level](#advanced-level)
-6. [🎭 Specialized Content Types](#specialized-content)
-7. [🦶 Character Consistency Mastery](#character-consistency)
-8. [🎵 Audio & Sound Design](#audio-design)
-9. [🎭 Professional Techniques](#professional-techniques)
-10. [🛠️ Troubleshooting & Tips](#troubleshooting)
-11. [📚 Quick Reference](#quick-reference)
+1. [🎯 Introduction & Quick Start](#-introduction--quick-start)
+2. [🎬 What is Veo3?](#-what-is-veo3)
+3. [🟢 Beginner Level](#-beginner-level)
+4. [🟡 Intermediate Level](#-intermediate-level)
+5. [🔴 Advanced Level](#-advanced-level)
+6. [🎭 Specialized Content Types](#-specialized-content-types)
+7. [🦶 Character Consistency Mastery](#-character-consistency-mastery)
+8. [🎵 Audio & Sound Design](#-audio--sound-design)
+9. [🎭 Professional Techniques](#-professional-techniques)
+10. [🛠️ Troubleshooting & Tips](#️-troubleshooting--tips)
+11. [📚 Quick Reference](#-quick-reference)
 
 ---
 
-## 🎯 Introduction & Quick Start {#introduction}
+## 🎯 Introduction & Quick Start
 
 Welcome to the most comprehensive Veo3 prompting guide available. This resource will take you from complete beginner to professional-level video creation using Google's revolutionary AI video generation model.
 
@@ -41,7 +41,7 @@ Welcome to the most comprehensive Veo3 prompting guide available. This resource 
 
 ---
 
-## 🎬 What is Veo3? {#what-is-veo3}
+## 🎬 What is Veo3?
 
 **Veo3** is Google DeepMind's revolutionary AI video generation model that creates high-quality, realistic videos from text prompts or images. Released in 2025, it represents the cutting edge of AI video technology.
 
@@ -68,7 +68,7 @@ Welcome to the most comprehensive Veo3 prompting guide available. This resource 
 
 ---
 
-## 🟢 Beginner Level {#beginner-level}
+## 🟢 Beginner Level
 
 **Perfect for:** First-time users, simple video creation, learning basics
 
@@ -150,7 +150,7 @@ Audio: pages turning, quiet library ambiance, soft footsteps.
 
 ---
 
-## 🟡 Intermediate Level {#intermediate-level}
+## 🟡 Intermediate Level
 
 **Perfect for:** Users with basic experience, detailed character work, environmental storytelling
 
@@ -246,7 +246,7 @@ Create detailed prompts for:
 
 ---
 
-## 🔴 Advanced Level {#advanced-level}
+## 🔴 Advanced Level
 
 **Perfect for:** Experienced users, cinematic quality, complex narratives, professional content
 
@@ -364,7 +364,7 @@ Create professional-quality prompts for:
 
 ---
 
-## 🎭 Specialized Content Types {#specialized-content}
+## 🎭 Specialized Content Types
 
 **Master specific video genres with proven techniques**
 
@@ -524,7 +524,7 @@ Audio: [Transformation sounds], [process audio], [completion sounds].
 
 ---
 
-## 🦶 Character Consistency Mastery {#character-consistency}
+## 🦶 Character Consistency Mastery
 
 **Essential for series content, character-based videos, and professional productions**
 
@@ -677,7 +677,7 @@ photo changes everything we thought we knew."
 
 ---
 
-## 🎵 Audio & Sound Design {#audio-design}
+## 🎵 Audio & Sound Design
 
 **Master Veo3's revolutionary native audio generation capabilities**
 
@@ -888,7 +888,7 @@ distant city traffic + umbrella opening sound
 
 ---
 
-## 🎭 Professional Techniques {#professional-techniques}
+## 🎭 Professional Techniques
 
 **Advanced methods for cinematic quality and viral content**
 
@@ -976,7 +976,7 @@ tick, showing the weight of countless years"
 
 ---
 
-## 🛠️ Troubleshooting & Tips {#troubleshooting}
+## 🛠️ Troubleshooting & Tips
 
 **Solutions to common Veo3 challenges**
 
@@ -1056,34 +1056,34 @@ tick, showing the weight of countless years"
 
 ---
 
-## 📚 Quick Reference {#quick-reference}
+## 📚 Quick Reference
 
 **Essential templates and checklists for rapid prompting**
 
 ### **⚡ Quick Prompt Templates**
 
-#### **Basic Template**
-```
+#### **📝 Simple Template**
+```text
 [Shot]. [Subject] [action] in [location]. [Lighting]. [Style].
 Audio: [sounds].
 ```
 
 #### **Character Template**
-```
+```text
 [Shot]. [Character description] [action] in [location]. [Lighting]. 
 [Camera movement]. [Style specifications].
 Audio: ([Character voice]): "[dialogue]" + [environment] + [music].
 ```
 
 #### **ASMR Template**
-```
+```text
 Extreme close-up. [Tactile object] with [texture details]. [Gentle lighting]. 
 [Detailed tactile action]. Minimalist aesthetic.
 Audio: [Tactile sounds] + [ambient] + no music.
 ```
 
 #### **Transformation Template**
-```
+```text
 [Shot]. [Initial state] undergoes [transformation]. [Physics details]. 
 [Final state]. [Style].
 Audio: [Process sounds] + [environmental] + [musical underscore].
@@ -1163,9 +1163,27 @@ Use this guide as your roadmap to mastery, but remember that the best learning c
 
 ---
 
-*The Complete Veo3 Prompting Guide v1.0*  
-*Enhanced Edition (June 2025)*  
-*For Google Veo3 AI Video Generation*
+## 📖 Guide Information
 
-Created by Snubroot & RyanAZ  
-Based on cutting-edge 2025 research and proven techniques
+**Version:** 1.0  
+**Last Updated:** June 30, 2025  
+**For:** Google Veo3 AI Video Generation Model  
+**Compatibility:** Veo3 via Google Flow Platform  
+
+**Created by:** Snubroot & RyanAZ  
+**Based on:** Latest 2025 research and proven viral content techniques  
+
+### 🎯 What's Included
+- ✅ Complete beginner to expert progression
+- ✅ Professional character consistency methods
+- ✅ Viral content templates (ASMR, Bigfoot, Fruit videos)
+- ✅ Advanced audio design techniques
+- ✅ Copy-paste ready templates
+- ✅ Real video examples and outputs
+
+### 📋 Quick Navigation
+[⬆️ Back to Table of Contents](#-table-of-contents)
+
+---
+
+*This guide contains over 1,100 lines of professional Veo3 prompting techniques. Bookmark this page for quick reference!*
