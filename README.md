@@ -286,6 +286,8 @@ Audio: (Marcus, gravelly voice, clearly lip-synced): "It was you all along."
 Rain on pavement, distant sirens, cigarette lighter click, tense orchestral sting.
 ```
 
+🎬 **[Watch this prompt in action!](https://youtu.be/JDmJ6q9jKjk)** - See the actual Veo3 output
+
 #### **Fantasy Transformation Sequence**
 ```
 Extreme close-up shot. An ancient leather-bound spellbook lies open on 
