@@ -100,21 +100,21 @@ Every good Veo3 prompt needs these **essential elements**:
 ```
 Medium shot. A woman drinks coffee at a kitchen table. 
 She smiles and looks out the window. Realistic style. 
-Audio: coffee sipping, morning birds chirping.
+Audio: coffee sipping, morning birds chirping. No talking, no music.
 ```
 
 #### **Simple Animal Scene**
 ```
 Wide shot. A golden retriever runs across a green meadow. 
 The dog jumps to catch a frisbee. Natural lighting. 
-Audio: dog barking, wind in grass, frisbee whooshing.
+Audio: dog barking, wind in grass, frisbee whooshing. No talking , no music.
 ```
 
 #### **Simple Object Focus**
 ```
 Close-up shot. A red apple sits on a wooden table. 
 Sunlight streams through a window onto the apple. 
-Photorealistic style. Audio: quiet room ambiance.
+Photorealistic style. Audio: quiet room ambiance. No talking, no music. 
 ```
 
 ### **🎨 Basic Camera Shots**
