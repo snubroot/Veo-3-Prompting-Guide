@@ -1,299 +1,379 @@
-# 🦶 **FLAWLESS Bigfoot Video Guide - Proven Method**
-*Exact Veo3 Prompt Structure for Perfect Results Every Time*
+# 🦶 **Tweaked-Out Bigfoot Video Guide**
+*Professional Veo3 Prompts for Viral Adult Comedy Content*
 
-**Based on 100% Successful Output Templates**
-
----
-
-## 🎯 **THE PROVEN FORMULA**
-
-This guide uses the EXACT structure that produces flawless outputs. Follow this precise format and you'll get perfect results every time.
-
-### **The Success Pattern:**
-1. **Opening**: Medium close-up shot from front-facing helmet-mounted GoPro perspective
-2. **Character**: A massive 8-foot tall Bigfoot with thick, dark brown matted fur...
-3. **Action**: [Specific action in location]
-4. **Camera**: The stable helmet-mounted GoPro camera faces forward...
-5. **Movement**: His [body part] [specific movement] with jittery, paranoid movements...
-6. **Details**: [Specific visual details]
-7. **Lighting**: Overcast afternoon lighting creates moody shadows...
-8. **Style**: Hyperrealistic documentary style, 16:9 aspect ratio
-9. **Audio**: (Bigfoot speaking alone, deep gravelly stoned voice...)
-
-### **🚫 CRITICAL: Subtitle Prevention Method**
-- **NEVER mention subtitles, text, or overlays in any form**
-- **Fill the visual space**: Include rich physical details that occupy the frame
-- **Emphasize documentary style**: Use "raw footage", "unedited", "authentic"
-- **Focus on physical realism**: Sweat, dirt, debris, natural textures
-- **Specify audio clarity**: "clear vocal recording" ensures clean audio without text
+**Helmet-Cam POV • Perfect Lip-Sync • Adult Humor • 8-Second Format**
 
 ---
 
 ## 📋 Table of Contents
 
-1. [🎯 The Exact Working Formula](#-the-exact-working-formula)
-2. [📝 Copy-Paste Templates](#-copy-paste-templates)
-3. [🎬 15 Proven Scenarios](#-15-proven-scenarios)
-4. [✅ Success Checklist](#-success-checklist)
-5. [🚀 Pro Tips](#-pro-tips)
+1. [🎯 Guide Overview](#-guide-overview)
+2. [🦶 Character Consistency Template](#-character-consistency-template)
+3. [📹 Camera & Technical Specs](#-camera--technical-specs)
+4. [🎤 Audio & Dialogue Formula](#-audio--dialogue-formula)
+5. [😂 15 Adult Humor Scenarios](#-15-adult-humor-scenarios)
+6. [🔧 Character Customization Tips](#-character-customization-tips)
+7. [📚 Quick Reference Templates](#-quick-reference-templates)
 
 ---
 
-## 🎯 The Exact Working Formula
+## 🎯 Guide Overview
 
-### **COPY THIS STRUCTURE EXACTLY:**
+**What Makes These Videos Work:**
+- **Helmet-Cam POV**: Intimate, documentary-style perspective
+- **Perfect Character Consistency**: Same Bigfoot every time
+- **Adult Humor**: Raunchy, stoned, paranoid comedy
+- **8-Second Format**: Perfect for viral social media content
+- **Professional Quality**: Hyperrealistic, not animated
+
+**Target Audience**: Adult comedy, viral content creators, social media influencers
+
+**Content Style**: Stoned paranoid Bigfoot with adult humor and conspiracy theories
+
+---
+
+## 🦶 Character Consistency Template
+
+**COPY-PASTE THIS EXACT DESCRIPTION EVERY TIME:**
 
 ```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge [ACTION AND LOCATION]. He is the only character present in the scene. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His [BODY PARTS] [SPECIFIC MOVEMENTS] with jittery, paranoid movements, constantly glancing around nervously while speaking directly to the camera. [ADDITIONAL VISUAL DETAILS]. Overcast afternoon lighting creates moody shadows across the [SETTING]. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
-
-Audio: (Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "[8-12 WORD DIALOGUE]" + [ENVIRONMENTAL SOUNDS] + [ACTION SOUNDS] + distant bird calls + [SPECIFIC SOUNDS] + helmet camera recording beeps.
+A massive 8-foot tall man in a realistic Bigfoot costume with thick, dark brown matted fur covering his body, natural brown eyes with dilated pupils from substances, and a heavy brow ridge. His fur has natural imperfections, dirt stains, and realistic texture variations. His eyes are human-like with natural lashes and realistic moisture.
 ```
 
-### **Key Elements That MUST Be Present:**
-1. **Exact opening**: "Medium close-up shot from front-facing helmet-mounted GoPro perspective"
-2. **Character intro**: "A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge"
-3. **Isolation phrase**: "He is the only character present in the scene"
-4. **Camera description**: "The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word"
-5. **Movement pattern**: "with jittery, paranoid movements, constantly glancing around nervously while speaking directly to the camera"
-6. **Lighting**: "Overcast afternoon lighting creates moody shadows across the [location]"
-7. **Style ending**: "Hyperrealistic documentary style, 16:9 aspect ratio"
-8. **Audio format**: "(Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync)"
+### **🎭 Character Personality Traits**
+- **Voice**: Deep gravelly stoned voice
+- **Delivery**: Rapid slurred speech with perfect lip-sync
+- **Movement**: Jittery, paranoid movements
+- **Behavior**: Constantly glancing around nervously
+- **Expressions**: Animated facial reactions, wide-eyed paranoia
 
-## 📝 Copy-Paste Templates
+### **🔍 Physical Details (Always Include)**
+- Thick, dark brown matted fur
+- Intelligent brown almond-shaped eyes
+- Dilated pupils (stoned effect)
+- Prominent but gentle brow ridge
+- Large nostrils that flare when excited
+- Facial hair that moves naturally
+- Large hands with thick fingers
 
-### **WORKING TEMPLATE #1 - Munchies (100% Success Rate)**
+---
+
+## 📹 Camera & Technical Specs
+
+### **🎥 Camera Setup (Never Change)**
 ```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge sits cross-legged alone in an isolated forest clearing, surrounded by empty food containers and wrappers. He is the only character present in the scene. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and he licks his lips hungrily with jittery, paranoid movements, constantly glancing around nervously while speaking directly to the camera. Crumbs stick to his facial hair. Overcast afternoon lighting creates moody shadows across the forest. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
-
-Audio: (Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Bro, I just ate seventeen bags of chips and I'm still hungry!" + rustling leaves + wrapper crinkling + distant bird calls + chewing sounds + helmet camera recording beeps.
+Medium close-up shot from front-facing helmet-mounted GoPro perspective. The stable helmet-mounted GoPro camera faces forward toward his animated face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word.
 ```
 
-### **WORKING TEMPLATE #2 - Swimming Paranoia (100% Success Rate)**
-```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge swims actively through murky swamp water. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and facial hair is wet and dripping as he paddles through the water with jittery, paranoid movements, constantly glancing around nervously while speaking. Water droplets splash on the camera lens occasionally. The Bigfoot's facial expressions and mouth movements are captured in real-time with documentary realism. His large hands create powerful splashes as he swims. Overcast afternoon lighting creates moody shadows across the swamp. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
+### **📐 Technical Requirements**
+- **Shot Type**: Medium close-up
+- **Perspective**: Front-facing helmet-mounted GoPro
+- **Focus**: Perfect lip synchronization
+- **Style**: Hyperrealistic documentary
+- **Aspect Ratio**: 16:9
+- **Quality**: Photorealistic only
 
-Audio: (Bigfoot, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Yo bro, the government's putting chemicals in our dam water, man!" + water splashing sounds + powerful swimming strokes + ambient swamp sounds + distant bird calls + helmet camera recording beeps.
+### **💡 Lighting Consistency**
+- **Primary**: Overcast afternoon lighting
+- **Effect**: Creates moody shadows
+- **Mood**: Gritty documentary realism
+- **Consistency**: Same lighting across all videos
+
+---
+
+## 🎤 Audio & Dialogue Formula
+
+### **🔊 Perfect Audio Structure**
+```
+Audio: (Bigfoot, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "[EXACT DIALOGUE - 8-12 WORDS MAX]" + [environmental sounds] + [action sounds] + [ambient base] + helmet camera recording beeps + no background music.
 ```
 
-### **ALTERNATIVE CHARACTER VERSION (Also 100% Success)**
+### **🎯 Dialogue Guidelines**
+
+#### **Word Count Rules**
+- **Maximum**: 12 words for 8-second videos
+- **Optimal**: 8-10 words for perfect timing
+- **Delivery**: 1.2-1.5 words per second
+- **Pacing**: Rapid but clear pronunciation
+
+#### **Voice Characteristics**
+- **Tone**: Deep gravelly stoned voice
+- **Delivery**: Rapid slurred speech
+- **Emotion**: Paranoid, excited, confused
+- **Consistency**: Same voice every video
+
+#### **Content Themes**
+- Conspiracy theories
+- Stoned observations
+- Adult humor situations
+- Paranoid thoughts
+- Random high thoughts
+
+### **🎵 Environmental Audio Categories**
+
+#### **Forest Settings**
+```
++ rustling leaves + branch snapping + distant bird calls + wind through trees + footstep sounds
+```
+
+#### **Urban Settings**
+```
++ distant traffic + city ambiance + footstep echoes + urban background noise
+```
+
+#### **Indoor Settings**
+```
++ room tone + muffled sounds + indoor acoustics + household noises
+```
+
+#### **Action-Specific Sounds**
+- **Eating**: chewing sounds + swallowing + food crunching
+- **Moving**: heavy footsteps + breathing + movement sounds
+- **Handling Objects**: object interaction + material sounds
+
+---
+
+## 😂 15 Adult Humor Scenarios
+
+*Each scenario uses the same character template and camera setup - only the action and dialogue change*
+
+### **🌲 Scenario 1: Bathroom Emergency**
 ```
 Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall man in a realistic Bigfoot costume with thick, dark brown matted fur covering his body, natural brown eyes with dilated pupils from substances, and a heavy brow ridge stands behind a large tree in the forest, looking around frantically. His fur has natural imperfections, dirt stains, and realistic texture variations. His eyes are human-like with natural lashes and realistic moisture. The stable helmet-mounted GoPro camera faces forward toward his face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His nostrils flare and he shifts uncomfortably from foot to foot with jittery, paranoid movements, constantly glancing around nervously while speaking. His facial expressions show urgent desperation. Overcast afternoon lighting creates moody shadows across the forest. Documentary realism with natural physics, 16:9 aspect ratio.
 
 Audio: (Man in Bigfoot costume, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Dude, I really shouldn't have eaten those fermented berries!" + rustling leaves + branch snapping + distant bird calls + wind through trees + helmet camera recording beeps.
 ```
 
-## 🎬 15 Proven Scenarios
-
-### **Following the EXACT successful format:**
-
-### **🍔 Scenario 1: Munchies Attack**
+### **🍍 Scenario 2: Munchies Attack**
 ```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge sits cross-legged alone in an isolated forest clearing, surrounded by empty food containers and wrappers. He is the only character present in the scene. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and he licks his lips hungrily with jittery, paranoid movements, constantly glancing around nervously while speaking directly to the camera. Crumbs stick to his facial hair. Overcast afternoon lighting creates moody shadows across the forest. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
+Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, intelligent brown almond-shaped eyes with dilated pupils, and a prominent but gentle brow ridge sits cross-legged alone in an isolated forest clearing, surrounded by empty food containers and wrappers. He is the only character present in the scene. The stable helmet-mounted GoPro camera faces forward toward his animated face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and he licks his lips hungrily with jittery, paranoid movements, constantly glancing around nervously while speaking directly to the camera. Crumbs stick to his facial hair. Overcast afternoon lighting creates moody shadows across the forest. Hyperrealistic documentary style, 16:9 aspect ratio.
 
 Audio: (Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Bro, I just ate seventeen bags of chips and I'm still hungry!" + rustling leaves + wrapper crinkling + distant bird calls + chewing sounds + helmet camera recording beeps.
 ```
 
-### **💩 Scenario 2: Bathroom Emergency**
+### **🚽 Scenario 3: Toilet Paper Crisis**
 ```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge stands behind a large tree in the forest, looking around frantically. He is the only character present in the scene. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His nostrils flare and he shifts uncomfortably from foot to foot with jittery, paranoid movements, constantly glancing around nervously while speaking directly to the camera. His facial expressions show urgent desperation. Overcast afternoon lighting creates moody shadows across the forest. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
+Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, intelligent brown almond-shaped eyes with dilated pupils, and a prominent but gentle brow ridge crouches behind bushes, holding large leaves in his massive hands. The stable helmet-mounted GoPro camera faces forward toward his animated face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and he examines the leaves critically with jittery, paranoid movements, constantly glancing around nervously while speaking. His expression shows desperate problem-solving. Overcast afternoon lighting creates moody shadows across the forest. Hyperrealistic documentary style, 16:9 aspect ratio.
 
-Audio: (Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Dude, I really shouldn't have eaten those fermented berries!" + rustling leaves + stomach gurgling + distant bird calls + branch snapping + helmet camera recording beeps.
-```
-
-### **🏊 Scenario 3: Swimming Paranoia**
-```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge swims actively through murky swamp water. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and facial hair is wet and dripping as he paddles through the water with jittery, paranoid movements, constantly glancing around nervously while speaking. Water droplets splash on the camera lens occasionally. The Bigfoot's facial expressions and mouth movements are captured in real-time with documentary realism. His large hands create powerful splashes as he swims. Overcast afternoon lighting creates moody shadows across the swamp. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
-
-Audio: (Bigfoot, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Yo bro, the government's putting chemicals in our dam water, man!" + water splashing sounds + powerful swimming strokes + ambient swamp sounds + distant bird calls + helmet camera recording beeps.
+Audio: (Bigfoot, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "These leaves better not be poison ivy or I'm screwed!" + rustling leaves + branch snapping + distant bird calls + leaf rustling + helmet camera recording beeps.
 ```
 
-### **🌳 Scenario 4: Tree Paranoia**
+### **🔥 Scenario 4: Smoking Gone Wrong**
 ```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge stands alone in an isolated forest clearing next to a large oak tree, pressing his ear against the bark suspiciously. He is the only character present in the scene. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and tree bark fragments stick to his matted facial fur as he pulls away with jittery, paranoid movements, constantly glancing around nervously while speaking directly to the camera. Sweat beads on his forehead. Overcast afternoon lighting creates moody shadows across the forest. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
+Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, intelligent brown almond-shaped eyes with dilated pupils, and a prominent but gentle brow ridge sits on a fallen log, coughing and waving smoke away from his face. The stable helmet-mounted GoPro camera faces forward toward his animated face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and he squints through watery eyes with jittery, paranoid movements, constantly glancing around nervously while speaking. Wisps of smoke curl around his head. Overcast afternoon lighting creates moody shadows across the forest. Hyperrealistic documentary style, 16:9 aspect ratio.
 
-Audio: (Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Dude, I swear this tree just whispered my social security number!" + rustling leaves + bark creaking + distant bird calls + nervous breathing + helmet camera recording beeps.
-```
-
-### **🍃 Scenario 5: Wrong Leaf Incident**
-```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge stands alone in an isolated forest clearing holding crumpled poison ivy leaves with a horrified expression. He is the only character present in the scene. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and leaf fragments stick to his sweaty palms as he scratches frantically with jittery, paranoid movements, constantly glancing around nervously while speaking directly to the camera. Red welts rise on his forearms. Overcast afternoon lighting creates moody shadows across the forest. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
-
-Audio: (Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Oh no, I just realized these aren't maple leaves!" + rustling leaves + frantic scratching sounds + distant bird calls + panicked breathing + helmet camera recording beeps.
+Audio: (Bigfoot, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "That definitely wasn't oregano I found in that baggie!" + rustling leaves + coughing sounds + distant bird calls + wind through trees + helmet camera recording beeps.
 ```
 
-### **🚬 Scenario 6: Oregano Mistake**
+### **🐛 Scenario 5: Itchy Situation**
 ```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge sits alone in an isolated forest clearing coughing violently while holding a poorly rolled joint. He is the only character present in the scene. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and oregano flakes stick to his wet lips as smoke puffs out with jittery, paranoid movements, constantly glancing around nervously while speaking directly to the camera. Tears stream down his furry cheeks. Overcast afternoon lighting creates moody shadows across the forest. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
+Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, intelligent brown almond-shaped eyes with dilated pupils, and a prominent but gentle brow ridge stands against a tree, scratching his back frantically against the bark. The stable helmet-mounted GoPro camera faces forward toward his animated face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and he contorts his face in relief with jittery, paranoid movements, constantly glancing around nervously while speaking. His expression shows desperate satisfaction. Overcast afternoon lighting creates moody shadows across the forest. Hyperrealistic documentary style, 16:9 aspect ratio.
 
-Audio: (Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Yo, I think someone replaced my stash with oregano!" + coughing sounds + rustling leaves + distant bird calls + wheezing breaths + helmet camera recording beeps.
-```
-
-### **🎆 Scenario 7: Fireworks Confusion**
-```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge holds a lit firework rocket like a joint. He is the only character present in the scene. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and sparks fly near his face with jittery, paranoid movements, constantly glancing at the sparking fuse while speaking directly to the camera. His expression shows confused alarm. Overcast afternoon lighting creates moody shadows across the forest. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
-
-Audio: (Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Bro, why is this joint making sparking sounds?" + fuse hissing + rustling leaves + distant bird calls + nervous breathing + helmet camera recording beeps.
+Audio: (Bigfoot, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Bro, I've got an itch in places I can't reach!" + rustling leaves + bark scraping + distant bird calls + scratching sounds + helmet camera recording beeps.
 ```
 
-### **👀 Scenario 8: Camper Watching**
+### **🎆 Scenario 6: Fireworks Mishap**
 ```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge crouches alone in isolated thick bushes peering through leaves. He is the only character present in the scene. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and twigs snap under his weight as he shifts position with jittery, paranoid movements, constantly glancing around nervously while speaking directly to the camera. Leaves stick to his matted forehead fur. Overcast afternoon lighting creates moody shadows across the forest. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
+Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, intelligent brown almond-shaped eyes with dilated pupils, and a prominent but gentle brow ridge holds a small firework, looking at it with confused fascination. The stable helmet-mounted GoPro camera faces forward toward his animated face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and he examines the firework closely with jittery, paranoid movements, constantly glancing around nervously while speaking. His eyebrows are slightly singed. Overcast afternoon lighting creates moody shadows across the forest. Hyperrealistic documentary style, 16:9 aspect ratio.
 
-Audio: (Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Those campers are doing way weirder stuff than me!" + rustling leaves + distant laughter + bird calls + suppressed giggling + helmet camera recording beeps.
+Audio: (Bigfoot, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "I thought this was a joint but it exploded!" + rustling leaves + distant bird calls + wind through trees + crackling sounds + helmet camera recording beeps.
 ```
 
-### **🐿️ Scenario 9: Squirrel Attraction**
+### **👀 Scenario 7: Peeping Tom**
 ```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge stands alone in an isolated forest clearing making awkward flirtatious gestures upward. He is the only character present in the scene. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and acorn shells crunch under his feet as he shifts nervously with jittery, paranoid movements, constantly glancing around while speaking directly to the camera. Pine needles fall onto his shoulders. Overcast afternoon lighting creates moody shadows across the forest. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
+Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, intelligent brown almond-shaped eyes with dilated pupils, and a prominent but gentle brow ridge crouches behind a large bush, peeking through the branches with binoculars. The stable helmet-mounted GoPro camera faces forward toward his animated face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and he whispers conspiratorially with jittery, paranoid movements, constantly glancing around nervously while speaking. His expression shows guilty excitement. Overcast afternoon lighting creates moody shadows across the forest. Hyperrealistic documentary style, 16:9 aspect ratio.
 
-Audio: (Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "That squirrel is totally checking me out, right bro?" + rustling leaves + chittering sounds + distant bird calls + nervous laughter + helmet camera recording beeps.
+Audio: (Bigfoot, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Dude, those campers are doing some freaky stuff over there!" + rustling leaves + branch snapping + distant voices + binocular adjustment sounds + helmet camera recording beeps.
+```
+
+### **🍺 Scenario 8: Drunk and Disorderly**
+```
+Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, intelligent brown almond-shaped eyes with dilated pupils, and a prominent but gentle brow ridge sways unsteadily, holding an empty bottle and hiccupping. The stable helmet-mounted GoPro camera faces forward toward his animated face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and he grins stupidly with jittery, paranoid movements, constantly glancing around nervously while speaking. His fur is disheveled and he looks thoroughly intoxicated. Overcast afternoon lighting creates moody shadows across the forest. Hyperrealistic documentary style, 16:9 aspect ratio.
+
+Audio: (Bigfoot, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "I found this bottle and now everything's spinning, man!" + rustling leaves + hiccupping sounds + distant bird calls + bottle clinking + helmet camera recording beeps.
+```
+
+### **🐕 Scenario 9: Animal Attraction**
+```
+Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, intelligent brown almond-shaped eyes with dilated pupils, and a prominent but gentle brow ridge sits on a rock, making exaggerated kissy faces at a confused squirrel nearby. The stable helmet-mounted GoPro camera faces forward toward his animated face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and he winks seductively with jittery, paranoid movements, constantly glancing around nervously while speaking. The squirrel chatters angrily and runs away. Overcast afternoon lighting creates moody shadows across the forest. Hyperrealistic documentary style, 16:9 aspect ratio.
+
+Audio: (Bigfoot, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Hey baby squirrel, want to see my nuts?" + rustling leaves + angry squirrel chattering + distant bird calls + branch movement + helmet camera recording beeps.
 ```
 
 ### **📱 Scenario 10: Technology Troubles**
 ```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge sits alone in an isolated forest clearing holding a muddy smartphone with both hands. He is the only character present in the scene. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and dirt from his fingers smudges the cracked screen as he pokes it with jittery, paranoid movements, constantly glancing around nervously while speaking directly to the camera. Screen light reflects off his moist eyes. Overcast afternoon lighting creates moody shadows across the forest. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
+Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, intelligent brown almond-shaped eyes with dilated pupils, and a prominent but gentle brow ridge holds a smartphone upside down, poking at the screen with his massive finger. The stable helmet-mounted GoPro camera faces forward toward his animated face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and he squints at the device with jittery, paranoid movements, constantly glancing around nervously while speaking. The phone screen is cracked from his heavy touch. Overcast afternoon lighting creates moody shadows across the forest. Hyperrealistic documentary style, 16:9 aspect ratio.
 
-Audio: (Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "How do I swipe right on this Tinder thing?" + phone notification sounds + rustling leaves + distant bird calls + frustrated grunts + helmet camera recording beeps.
+Audio: (Bigfoot, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "How do I swipe right on this Tinder thing?" + rustling leaves + phone beeping + distant bird calls + finger tapping + helmet camera recording beeps.
 ```
 
-### **🥒 Scenario 11: Vegetable Confusion**
+### **🍆 Scenario 11: Vegetable Confusion**
 ```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge sits alone in an isolated forest clearing examining a dirt-covered cucumber with intense fascination. He is the only character present in the scene. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and cucumber juice drips onto his fingers as he squeezes it with jittery, paranoid movements, constantly glancing around nervously while speaking directly to the camera. Dirt smudges mark his confused face. Overcast afternoon lighting creates moody shadows across the forest. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
+Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, intelligent brown almond-shaped eyes with dilated pupils, and a prominent but gentle brow ridge holds a large cucumber, examining it with inappropriate fascination. The stable helmet-mounted GoPro camera faces forward toward his animated face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and he grins mischievously with jittery, paranoid movements, constantly glancing around nervously while speaking. He rotates the cucumber suggestively. Overcast afternoon lighting creates moody shadows across the forest. Hyperrealistic documentary style, 16:9 aspect ratio.
 
-Audio: (Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Why does this green thing make me feel funny?" + rustling leaves + sniffing sounds + distant bird calls + confused mumbling + helmet camera recording beeps.
-```
-
-### **🚨 Scenario 12: Emergency Call**
-```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge stands alone in an isolated forest clearing speaking urgently into a muddy phone. He is the only character present in the scene. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and wood splinters stick to his ankle fur as he tugs desperately with jittery, paranoid movements, constantly glancing around nervously while speaking directly to the camera. Sweat beads mix with dirt on his forehead. Overcast afternoon lighting creates moody shadows across the forest. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
-
-Audio: (Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "911? My foot's stuck and I'm too high to figure it out!" + phone static + rustling leaves + distant bird calls + panicked breathing + helmet camera recording beeps.
+Audio: (Bigfoot, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "This cucumber is way bigger than I expected!" + rustling leaves + distant bird calls + wind through trees + vegetable handling sounds + helmet camera recording beeps.
 ```
 
-### **👗 Scenario 13: Fashion Emergency**
+### **🚑 Scenario 12: Emergency Services**
 ```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge stands alone in an isolated forest clearing wearing a muddy torn pink tutu. He is the only character present in the scene. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and tulle fabric catches on his matted belly fur as he spins clumsily with jittery, paranoid movements, constantly glancing around nervously while speaking directly to the camera. Sequins fall and stick to his sweaty chest. Overcast afternoon lighting creates moody shadows across the forest. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
+Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, intelligent brown almond-shaped eyes with dilated pupils, and a prominent but gentle brow ridge holds an old rotary phone, dialing frantically. The stable helmet-mounted GoPro camera faces forward toward his animated face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and he looks panicked with jittery, paranoid movements, constantly glancing around nervously while speaking. The phone cord is tangled around his massive fingers. Overcast afternoon lighting creates moody shadows across the forest. Hyperrealistic documentary style, 16:9 aspect ratio.
 
-Audio: (Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Found this forest dress, do I look pretty?" + fabric rustling + leaves crunching + distant bird calls + proud humming + helmet camera recording beeps.
+Audio: (Bigfoot, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "911? I need help, my foot's stuck in something!" + rustling leaves + rotary phone dialing + distant bird calls + phone static + helmet camera recording beeps.
+```
+
+### **🌈 Scenario 13: Fashion Emergency**
+```
+Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, intelligent brown almond-shaped eyes with dilated pupils, and a prominent but gentle brow ridge wears a tiny pink tutu around his waist, posing awkwardly. The stable helmet-mounted GoPro camera faces forward toward his animated face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and he strikes ridiculous poses with jittery, paranoid movements, constantly glancing around nervously while speaking. The tutu is comically small on his massive frame. Overcast afternoon lighting creates moody shadows across the forest. Hyperrealistic documentary style, 16:9 aspect ratio.
+
+Audio: (Bigfoot, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Does this tutu make my butt look big?" + rustling leaves + fabric rustling + distant bird calls + wind through trees + helmet camera recording beeps.
 ```
 
 ### **💪 Scenario 14: Workout Woes**
 ```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge stands alone in an isolated forest clearing attempting clumsy jumping jacks. He is the only character present in the scene. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and leaves stick to his sweaty fur as his arms flail with jittery, paranoid movements, constantly glancing around nervously while speaking directly to the camera. Dust clouds rise from his heavy landings. Overcast afternoon lighting creates moody shadows across the forest. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
+Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, intelligent brown almond-shaped eyes with dilated pupils, and a prominent but gentle brow ridge attempts to do jumping jacks, but his coordination is completely off. The stable helmet-mounted GoPro camera faces forward toward his animated face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and he breathes heavily with jittery, paranoid movements, constantly glancing around nervously while speaking. His arms and legs move in opposite directions. Overcast afternoon lighting creates moody shadows across the forest. Hyperrealistic documentary style, 16:9 aspect ratio.
 
-Audio: (Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Dude, I think I pulled something that doesn't exist!" + heavy breathing + rustling leaves + distant bird calls + joints cracking + helmet camera recording beeps.
+Audio: (Bigfoot, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "Bro, I think I pulled something I didn't know existed!" + rustling leaves + heavy breathing + distant bird calls + movement sounds + helmet camera recording beeps.
 ```
 
-### **🎂 Scenario 15: Birthday Confusion**
+### **🎂 Scenario 15: Birthday Suit**
 ```
-Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, deep-set brown eyes with natural highlights, and a prominent but gentle brow ridge stands alone in an isolated forest clearing looking down at his furry body confused. He is the only character present in the scene. The stable helmet-mounted GoPro camera faces forward toward his expressive face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and pine needles stick to his matted chest fur as he pats himself down with jittery, paranoid movements, constantly glancing around nervously while speaking directly to the camera. Mud cakes between his toes. Overcast afternoon lighting creates moody shadows across the forest. Raw footage quality with hyperrealistic documentary style, 16:9 aspect ratio.
+Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, intelligent brown almond-shaped eyes with dilated pupils, and a prominent but gentle brow ridge wears a tiny party hat and holds a single birthday candle. The stable helmet-mounted GoPro camera faces forward toward his animated face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and he grins sheepishly with jittery, paranoid movements, constantly glancing around nervously while speaking. The party hat sits ridiculously small on his massive head. Overcast afternoon lighting creates moody shadows across the forest. Hyperrealistic documentary style, 16:9 aspect ratio.
 
-Audio: (Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "They said birthday suit but I don't see any suit!" + rustling leaves + confused grunts + distant bird calls + nervous laughter + helmet camera recording beeps.
+Audio: (Bigfoot, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "It's my birthday and I'm wearing my birthday suit!" + rustling leaves + distant bird calls + wind through trees + party hat rustling + helmet camera recording beeps.
 ```
 
 ---
 
-## 🔧 Troubleshooting & Pro Tips
+## 🔧 Character Customization Tips
 
-### **⚠️ Common Issues & Solutions**
+### **🎨 Modifying Character Appearance**
 
-**Problem: Multiple characters appear**
-- Solution: Always include "alone" in location description
-- Add "He is the only character present in the scene"
-- Use "isolated" location descriptors
-- Emphasize solitary actions and self-directed dialogue speaking
+#### **Fur Variations**
+- **Color Options**: "thick, dark brown matted fur" → "thick, reddish-brown matted fur" or "thick, black matted fur"
+- **Texture Options**: "matted fur" → "shaggy fur" or "coarse fur" or "tangled fur"
+- **Condition**: Add "mud-stained" or "leaf-covered" or "wet and dripping"
 
-**Problem: Wrong character speaking**
-- Solution: Use "Bigfoot speaking alone" in audio
-- Add "speaking directly to camera"
-- Include "his mouth moves" in visual description
+#### **Eye Modifications**
+- **Color**: "brown almond-shaped eyes" → "green almond-shaped eyes" or "hazel almond-shaped eyes"
+- **Condition**: Always keep "dilated pupils" for stoned effect
+- **Expression**: Add "bloodshot" or "watery" or "squinting"
 
-**Problem: Poor lip-sync**
-- Solution: Always mention "perfect lip synchronization"
-- Include "mouth moves precisely with each spoken word"
-- Keep dialogue under 12 words
+#### **Facial Features**
+- **Brow**: "prominent but gentle brow ridge" → "heavy brow ridge" or "pronounced brow ridge"
+- **Nose**: Add "large flaring nostrils" or "wide nose"
+- **Mouth**: Add "crooked grin" or "gap-toothed smile"
 
-**Problem: Animation style instead of realistic**
-- Solution: Specify "hyperrealistic documentary style"
-- Include "documentary realism with natural physics"
-- Add realistic details (wet fur, water droplets, natural lighting)
+### **🎭 Voice & Personality Tweaks**
 
-### **💯 Success Checklist**
-- [ ] Used exact prompt structure from working templates
-- [ ] Character description matches proven format
-- [ ] "Alone" and "only character present" included
-- [ ] Camera setup exactly as specified
-- [ ] Perfect lip-sync mentioned explicitly
-- [ ] Audio format follows proven structure
-- [ ] Dialogue is 8-12 words maximum
-- [ ] Style specified as hyperrealistic documentary
-- [ ] Physical grounding details included (dirt, sweat, debris)
-- [ ] Environmental interactions specified
-- [ ] "Raw footage" or "authentic" documentary feel emphasized
-- [ ] Visual space filled with rich physical details
+#### **Voice Variations**
+- **Tone**: "deep gravelly stoned voice" → "raspy stoned voice" or "hoarse stoned voice"
+- **Accent**: Add regional accents: "with Southern drawl" or "with New York accent"
+- **Speed**: "rapid slurred delivery" → "slow drawling delivery" or "excited rapid delivery"
+
+#### **Personality Adjustments**
+- **Paranoid**: "constantly glancing around nervously" (default)
+- **Confident**: "swaggering with overconfidence"
+- **Confused**: "looking around in bewilderment"
+- **Excited**: "bouncing with manic energy"
+
+### **🌍 Setting Modifications**
+
+#### **Location Options**
+- **Forest**: "in the forest" (default)
+- **Urban**: "in an alley behind buildings"
+- **Suburban**: "in a backyard garden"
+- **Beach**: "on a sandy beach"
+- **Mountain**: "on a rocky mountainside"
+
+#### **Lighting Variations**
+- **Default**: "Overcast afternoon lighting creates moody shadows"
+- **Golden Hour**: "Warm golden hour lighting creates dramatic shadows"
+- **Night**: "Moonlight creates eerie shadows"
+- **Bright Day**: "Bright midday sunlight creates sharp shadows"
 
 ---
 
-## 📢 Quick Reference Guide
+## 📚 Quick Reference Templates
 
-### **Essential Phrases (MUST INCLUDE)**
-1. "alone in an isolated forest clearing"
-2. "He is the only character present in the scene"
-3. "speaking directly to the camera"
-4. "capturing perfect lip synchronization"
-5. "mouth moves precisely with each spoken word"
-6. "Bigfoot speaking alone"
-7. "hyperrealistic documentary style"
-8. "raw footage quality" or "authentic documentary capture"
-9. "natural physics and realistic motion"
-10. Physical details: "dirt", "sweat", "debris", "texture"
-
-### **Proven Dialogue Examples (8-12 words)**
-- 8 words: "Dude, why do trees keep following me around?"
-- 10 words: "Bro, I think that mushroom just winked at me!"
-- 12 words: "Man, I swear the government put cameras in all these pinecones!"
-
-### **Audio Formula Template**
+### **📋 Master Template (Copy-Paste Ready)**
 ```
-Audio: (Bigfoot speaking alone, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "[YOUR DIALOGUE HERE]" + [action sound] + rustling leaves + distant bird calls + [specific sound] + helmet camera recording beeps.
+Medium close-up shot from front-facing helmet-mounted GoPro perspective. A massive 8-foot tall Bigfoot with thick, dark brown matted fur, intelligent brown almond-shaped eyes with dilated pupils, and a prominent but gentle brow ridge [ACTION DESCRIPTION]. The stable helmet-mounted GoPro camera faces forward toward his animated face, capturing perfect lip synchronization as his mouth moves precisely with each spoken word. His large nostrils flare and [FACIAL EXPRESSION] with jittery, paranoid movements, constantly glancing around nervously while speaking. [ADDITIONAL DETAILS]. Overcast afternoon lighting creates moody shadows across the [SETTING]. Hyperrealistic documentary style, 16:9 aspect ratio.
+
+Audio: (Bigfoot, deep gravelly stoned voice, rapid slurred delivery with perfect lip-sync): "[8-12 WORD DIALOGUE]" + [ENVIRONMENTAL SOUNDS] + [ACTION SOUNDS] + [AMBIENT BASE] + helmet camera recording beeps.
 ```
+
+### **🎯 Fill-in-the-Blank Guide**
+
+#### **[ACTION DESCRIPTION] Options:**
+- sits on a fallen log, [doing something]
+- stands behind a large tree, [doing something]
+- crouches in tall grass, [doing something]
+- leans against a rock, [doing something]
+- walks through the underbrush, [doing something]
+
+#### **[FACIAL EXPRESSION] Options:**
+- he grins mischievously
+- he looks confused
+- he appears panicked
+- he squints suspiciously
+- he smiles stupidly
+- he frowns in concentration
+
+#### **[ADDITIONAL DETAILS] Examples:**
+- His fur is disheveled and dirty
+- Leaves stick to his matted hair
+- His eyebrows are slightly singed
+- Crumbs stick to his facial hair
+- His expression shows [emotion]
+
+#### **[SETTING] Options:**
+- forest
+- swamp
+- meadow
+- mountainside
+- clearing
+
+#### **[ENVIRONMENTAL SOUNDS] by Setting:**
+- **Forest**: rustling leaves + branch snapping + distant bird calls + wind through trees
+- **Swamp**: water lapping + frog croaking + insect buzzing + marsh sounds
+- **Urban**: distant traffic + city ambiance + footstep echoes + urban noise
+- **Beach**: wave sounds + seagull calls + wind + sand shifting
+
+### **📝 Dialogue Word Count Checker**
+
+#### **8-Second Timing Examples:**
+- 8 words: "Dude, I think I'm totally screwed right now!"
+- 9 words: "Bro, this situation is way more complicated than expected!"
+- 10 words: "Man, I really shouldn't have eaten those weird mushrooms earlier!"
+- 11 words: "Guys, I'm pretty sure the government is watching me through trees!"
+- 12 words: "Dude, I just realized I've been talking to myself for hours now!"
+
+### **🚀 Pro Tips for Viral Content**
+
+#### **🎯 Consistency Rules**
+1. **NEVER** change the character description - copy-paste exactly
+2. **ALWAYS** use the same camera setup description
+3. **ALWAYS** include "perfect lip synchronization" phrase
+4. **ALWAYS** end audio with "+ helmet camera recording beeps"
+
+#### **💰 Monetization Friendly**
+- Keep adult humor suggestive but not explicit
+- Avoid direct profanity in dialogue
+- Focus on innuendo and double entendres
+- Keep scenarios relatable and shareable
+
+#### **📱 Social Media Optimization**
+- 8-second format perfect for TikTok, Instagram Reels
+- Helmet-cam POV creates intimate viewer connection
+- Adult humor targets 18+ demographic
+- Consistent character builds audience loyalty
 
 ---
 
 ## 🎆 Final Notes
 
-### **Why This Guide Works**
-- Based on 100% successful prompt structures
-- Every element tested and proven
-- Exact phrasing prevents AI confusion
-- Character isolation ensures consistency
-- Perfect for viral social media content
+**This guide provides everything needed to create professional, viral-ready tweaked-out Bigfoot content using Veo3. The key to success is absolute consistency in character description while varying only the scenarios and dialogue.**
 
-### **Remember:**
-1. **NEVER paraphrase** - Use exact wording
-2. **ALWAYS copy-paste** - Don't type from memory
-3. **CHECK every element** - Missing one word can break it
-4. **TEST with proven prompts first** - Build confidence
-5. **MAINTAIN exact structure** - Order matters
+**Remember: Copy-paste the character template exactly every time - never paraphrase or modify the core description!**
 
-### **For Best Results:**
-- Start with the working templates provided
-- Only modify dialogue and specific actions
-- Keep all structural elements identical
-- Use the checklist every time
-- Save your successful prompts
-
----
-
-## 🚀 Ready to Create?
-
-You now have everything needed to create flawless Bigfoot comedy videos:
-- ✅ Proven prompt structures
-- ✅ 15 tested scenarios
-- ✅ Exact copy-paste templates
-- ✅ Troubleshooting solutions
-- ✅ Success checklist
-
-**Start with Template #1 (Munchies) to verify your setup, then explore the other scenarios!**
-
-*Remember: The key to success is using the EXACT format that's been proven to work. Don't improvise - follow the formula!*
+**Happy creating! 🎉**
