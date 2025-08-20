@@ -30,6 +30,8 @@
 - [📖 Introduction to Veo 3](#-introduction-to-veo-3)
 - [⚡ Key Capabilities](#-key-capabilities)
 - [🎯 Professional Prompt Structure](#-professional-prompt-structure)
+- [Prompt builder Agent - https://ulazai.com/prompt-assistant/]
+- Veo 3 Prompt Directory - https://ulazai.com/directory/]
 
 ### 🎥 **CORE TECHNIQUES**
 - [🎬 Advanced Prompting Practices](#-advanced-prompting-practices)
